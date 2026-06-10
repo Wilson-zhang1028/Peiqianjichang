@@ -1,4 +1,4 @@
-# 赔钱机场｜官网地址 · 套餐对比 · 使用评测（持续更新）
+# 赔钱机场｜官网地址 · 套餐对比 · 使用评测
 
 > 关键词：赔钱机场、赔钱机场官网、赔钱机场套餐、赔钱机场评测、机场推荐  
 > 本仓库用于整理赔钱机场的基础信息、套餐对比、使用建议与理性分析。
@@ -42,11 +42,7 @@
 
 ## 官网地址
 
-👉 官方网站：[https://赔钱.com](https://赔钱.com/#/register?code=RJXPmRBE) (可以直连) <br>
-👉 备用发布页：[https://www.赔钱机场.site](https://www.赔钱机场.site/#/register?code=RJXPmRBE) <br>
-👉 备用发布页：[https://赔钱机场.com](https://赔钱机场.com/#/register?code=RJXPmRBE) (需要代理) <br>
-👉 备用发布页：[https://赔钱机场.site](https://赔钱机场.site/#/register?code=RJXPmRBE) (需要代理) <br>
-👉 备用发布页：[https://dash.pqjc.site](https://dash.pqjc.site/#/register?code=RJXPmRBE) <br>
+👉 官方网站：[https://赔钱.com]([https://赔钱.com/#/register?code=RJXPmRBE](https://xn--mes358aby2apfg.com/register?code=uqvijfT2&cover=sfw)) (可以直连) <br>
 
 > 建议通过官方渠道获取最新地址，避免钓鱼站。
 
