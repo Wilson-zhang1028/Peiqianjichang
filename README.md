@@ -42,7 +42,7 @@
 
 ## 官网地址
 
-👉 官方网站：[https://赔钱.com]([https://赔钱.com/#/register?code=RJXPmRBE](https://xn--mes358aby2apfg.com/register?code=uqvijfT2&cover=sfw)) (可以直连) <br>
+👉 官方网站：[https://赔钱.com](https://xn--mes358aby2apfg.com/register?code=uqvijfT2&cover=sfw) (可以直连) <br>
 
 > 建议通过官方渠道获取最新地址，避免钓鱼站。
 
