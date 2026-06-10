@@ -35,6 +35,7 @@
 - Shadowrocket  
 - Surge  
 - Quantumult X  
+- V2rayN  
 
 > 实际使用体验受地区与网络环境影响较大。
 
